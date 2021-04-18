@@ -1,6 +1,6 @@
 【版本名】更新1.1【版本名】
 【版本】2【版本】
 【内容】
-增强应用安全性
+增强应用安全
 【内容】
-【链接】https://www.baidu.com/app/app1.1.apk【链接】
+【链接】https://www.baqu.com/app/app1.1.apk【链接】
