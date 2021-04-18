@@ -3,4 +3,4 @@
 【内容】
 增强应用安全
 【内容】
-【链接】https://www.baqu.com/app/app1.8.apk【链接】
+【链接】https://www.luyuz.cn/app/app1.1.apk【链接】
